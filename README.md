@@ -1,2 +1,0 @@
-# wisdek
-wisata kota depok
